@@ -19,9 +19,9 @@ R E T R O N E R D . C L U B r0x!
 
 SOCIAL NETWORK AND STREAMING LINKS
 
-INSTAGRAM | YOUTUBE | FACEBOOK
+[INSTAGRAM](https://www.instagram.com/retronerd.club/) | [YOUTUBE](https://www.youtube.com/@retronerd_club) | [FACEBOOK](https://www.facebook.com/retronerd.club)
 
-TWITCH | TIKTOK | TWITTER | GITHUB
+[TWITCH](https://www.twitch.tv/retronerd_club) | [TIKTOK](https://www.tiktok.com/@sh4p3) | [TWITTER](https://twitter.com/retronerd_club) | [GITHUB](https://github.com/retronerd-club)
 
 
 C:\>_
